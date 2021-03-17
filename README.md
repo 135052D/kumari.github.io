@@ -1,1 +1,0 @@
-# kumari.github.io
